@@ -1,2 +1,0 @@
-# TripleKKK
-Primera entrega
